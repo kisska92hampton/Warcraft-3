@@ -219,4 +219,4 @@ Warcraft 3 is available as a complete free version with all features and updates
 Don't miss out on the chance to experience the incredible world of Warcraft 3. **Download it now and lead your army to victory!**
 
 ---
-**Last updated:** 2026-09-19 14:05:46 UTC
+**Last updated:** 2026-09-19 17:39:45 UTC
